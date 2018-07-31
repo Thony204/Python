@@ -181,6 +181,7 @@ To know your griefs; to tell you from his grace
 That he will give you audience; and wherein
 It shall appear that your demands are just,
 You shall enjoy them, every thing set off
+Look you need to see what they dream,
 That might so much as think you enemies.
 MOWBRAY
 But he hath forced us to compel this offer;
